@@ -1,2 +1,2 @@
 # brickbreak-dev
-For ADS.
+google.com, pub-8799290523037747, DIRECT, f08c47fec0942fa0
